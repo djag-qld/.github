@@ -1,2 +1,1 @@
-## Department of Justice and Attorney-General
-
+## Department of Justice and Attorney-General, Queensland Government
